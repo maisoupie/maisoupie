@@ -1,9 +1,9 @@
+![mikey happy pt](https://github.com/user-attachments/assets/010853fb-985d-4d1c-892b-56a59216d5db)
+
 you can call me soup or soupie.
 i like mikey a normal amount.
 
 i'm usually working when i have pt open so you'll have to whisper me to get my attention.
-
-i'm probably a mikey skin. ![image](https://github.com/user-attachments/assets/9dcabe9d-ad93-49d7-a467-e7a2d2e29a45)
 
 not keen on cuddling people i don't know but i know how to use the block tool so do what you want.
 
